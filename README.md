@@ -1,2 +1,2 @@
 # Interests
-I put here anything which fascinates me.
+I put here anything which interests me.
